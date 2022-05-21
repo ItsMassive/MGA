@@ -1,2 +1,2 @@
 # MGA
-it is what it is
+https://mga.rocks/
